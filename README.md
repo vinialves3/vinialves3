@@ -3,7 +3,7 @@
 
 - 1. estudo Desenvolvimento de Sistemas no SENAI
 - 2. ele/dele
-- 3. 17yo, boituva/são paulo (brasil)
+- 3. 17 anos, boituva/são paulo (brasil)
 - 4. contato via e-mail: vinicius.af27@gmail.com
  
 <div>
